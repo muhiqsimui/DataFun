@@ -1,0 +1,1 @@
+Untuk latihan data nanti
