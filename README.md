@@ -1,1 +1,1 @@
-## latihan data
+## untuk belajar dan latihan data
